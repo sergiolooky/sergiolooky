@@ -6,3 +6,4 @@
 - I am a transfer student at the San Simón University in the city of Cochabamba.
 - I am graphic design
 - my hobby playing guitar, listening to music, playing harmonica.
+- I left La Salle school tomorrow
